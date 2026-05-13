@@ -1,4 +1,4 @@
-#  
+#  Experience blade ball like never before with blade ball secret Scripts, the #1 Script. Includes silent aim and god mode for unbeatable performance.
 
 
 
